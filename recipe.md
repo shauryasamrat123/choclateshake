@@ -1,0 +1,1 @@
+mix the milk with cocoa powder inagrimder then add some ice to it after that put the wafer and the ice cream on it's top
